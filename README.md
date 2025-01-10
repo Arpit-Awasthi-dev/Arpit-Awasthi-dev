@@ -44,6 +44,6 @@ I have worked on more projects but dont have links for that 😵‍💫
 
 
 
-📧 **Email**: [your.email@example.com](mailto:your.email@example.com)
+📧 **Email**: [arpitawasthi5724@gmail.com](mailto:arpitawasthi5724@gmail.com)
 ---
 
